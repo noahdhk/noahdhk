@@ -2,7 +2,7 @@
 
 🔧 Systems-focused developer building **software + hardware solutions** that connect data to the real world.
 
-🐦‍🔥 PHX | US Air Force Veteran
+🐦‍🔥 PHX
 
 ---
 
